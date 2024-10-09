@@ -1,2 +1,4 @@
-# lamm
-https://media.discordapp.net/attachments/1090895809098289185/1254014549904982121/ec62c1293c027ecb.mp4?ex=6705040f&amp;is=6703b28f&amp;hm=eee4fa22779034c2047c85c7ef2b2cd79660e33953179db6cbeb228642f0e93b&amp;
+#Lamm
+
+https://github.com/user-attachments/assets/0ed882df-fe6b-4445-afd1-718c09c1f6e9
+
